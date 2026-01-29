@@ -1,1 +1,1 @@
-# Trash-Treasure-How-Wealth-Tracks-Plastic-Mismanagement
+# How Wealth-Tracks-PlasticMismanagement
