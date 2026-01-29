@@ -1,1 +1,1 @@
-# How Wealth-Tracks-PlasticMismanagement
+# How Wealth Tracks Plastic Mismanagement
